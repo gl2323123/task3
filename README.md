@@ -1,6 +1,6 @@
 # ABOUT ME
 
-Hello, my name is Gleb. I from a small town Staryy Oskol. I'm 19.
+Hello, my name is Gleb. I from a small town Staryy Oskol. I'm 19. I student in college
 
 I like learning new and I want change my life. I want defeat laziness. Slowly it turns out but it's not enough. 
 What I did:
