@@ -11,5 +11,4 @@ What I did:
 ## LET'S GO CHACNGE LIFE WITH ME
 
 ![Fighting Laziness](image-1.png)
-
-![](Motivation.mp4)
+## Fight with Laziness
