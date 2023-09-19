@@ -12,3 +12,5 @@ What I did:
 
 ![Fighting Laziness](image-1.png)
 ## Fight with Laziness
+
+[MOTIVATON!!!!😂](https://www.youtube.com/watch?v=c39fgxAVqik)
